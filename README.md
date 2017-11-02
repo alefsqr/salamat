@@ -1,0 +1,2 @@
+# salamat
+salamat bartar miterkone
